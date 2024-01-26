@@ -12,4 +12,3 @@
 1.  2023/2027 **UNAM-Contaduria**
 2.  2023/2024 **Programa-Mujerdigital**
 3.  2023 **Programatecnolochicas**
-
