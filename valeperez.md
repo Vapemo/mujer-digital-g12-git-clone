@@ -1,5 +1,5 @@
-# Cv-Valeria Pérez Mondragón
-## ## Estudiante
+## Cv Valeria Pérez Mondragon
+## Estudiante
 ### Contacto
 - valeriamondragon567@gmail.com
 ### Sobre mi
